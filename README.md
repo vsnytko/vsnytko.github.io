@@ -1,1 +1,0 @@
-# vsnytko.github.io
